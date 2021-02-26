@@ -24,6 +24,14 @@ I hear something
 #### From the perspective of light
 They are all same
 
+#### From the perspective of time
+Woooooo! Humans somehow finally found a way to bring future calculations to present.🥱
+
+### From the perspective of current(moving electrons)
+Why are these stupid people attach "TAKE DIVERSION" board wherever I go?🥵 
+
+### From the perspective of math
+Seriously you(computer) don't know any number other than 0 and 1? Strange,Why does people still trust them?🤔
 
 #### From the perspective of a person who tries to become genius;
 
