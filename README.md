@@ -46,3 +46,7 @@ And we are searching for it in every possible way for that life. One of the way,
 
 Nothing.
 
+### **From the perspective of a vibe coder**
+
+Programming is having black tea in between the real work what that particular vibe coder is doing
+
